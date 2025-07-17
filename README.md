@@ -1,2 +1,1 @@
-# bokepviralpink
-bokepviralpink
+# [bokepviralpink](https://bokepviralpink.pages.dev)
